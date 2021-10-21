@@ -18,4 +18,4 @@ samples, guidance on mobile development, and a full API reference.
 
 
 ##
-<a href="https://ibb.co/y8pShVz"><img src="https://i.ibb.co/GV9TsFZ/Screenshot-1628669875.png" alt="Screenshot-1628669875" border="0" height='300'></a><br /><a target='_blank' href='https://imgbb.com/'>how to send pictures on skype iphone</a><br />
+<a href="https://ibb.co/y8pShVz"><img src="https://i.ibb.co/GV9TsFZ/Screenshot-1628669875.png" alt="Screenshot-1628669875" border="0" height='300'></a><br /><a target='_blank' href='https://imgbb.com/'></a><br />
